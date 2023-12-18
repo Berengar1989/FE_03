@@ -1,3 +1,3 @@
-# Domaci ukol 2
+# Domaci ukol 3
 
 ## by Artem
